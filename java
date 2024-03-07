@@ -1,0 +1,1 @@
+mencari nilai rata rata
